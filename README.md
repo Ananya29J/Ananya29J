@@ -6,7 +6,7 @@
 🪸 BTech. Computer Science specialization in Artificial Intelligence Student at SRM University<br/>
 🧠 BS in Data Science and Applications Student at IIT-Madras<br/>
 
-🌐 Excellence in code: Transforming vision into reality.<br/>
+🌏 Excellence in code: Transforming vision into reality.<br/>
 🌃 Innovating at the intersection of ambition and execution.<br/>
 
 ## 🌐 Socials:
